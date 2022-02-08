@@ -1,4 +1,4 @@
-### Hi, I'm Laís Tie. Welcome to my github ❀
+### Hi, I'm Laís Tie, a computer science student. Welcome to my github ❀
 
 #### ❀ Github stats ❀
 <div>
